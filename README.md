@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **praneethathurlapati@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1rBMYOWE7yHfi7VBnZQbN2Eg-BAS3MusP/view](https://drive.google.com/file/d/1rBMYOWE7yHfi7VBnZQbN2Eg-BAS3MusP/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/17rYQtx-ZceEUWLGFQ6EYine4U9MReGn2/view?usp=sharing](https://drive.google.com/file/d/17rYQtx-ZceEUWLGFQ6EYine4U9MReGn2/view?usp=sharing)
 
 - ⚡ Fun fact **I enjoy immersing myself in the world of novels**
 
