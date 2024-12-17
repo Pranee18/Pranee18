@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Praneetha</h1>
-<h3 align="center">A passionate Machine Learning enthusiast and Data Scientist from India, driven by curiosity and innovation. Currently exploring the dynamic world of Web Development to build seamless and interactive digital experiences.</h3>
+<h3 align="center">A passionate Machine Learning and Data Science enthusiast, eager to explore and innovate. Currently diving into Web Development to build seamless and interactive digital experiences. Excited to learn, grow, and contribute as I step into the professional world.</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=pranee18&label=Profile%20views&color=0e75b6&style=flat" alt="pranee18" /> </p>
 
