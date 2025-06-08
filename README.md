@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Machine learning**
 
-- 📫 How to reach me **praneethathurlapati@gmail.com**
+- 📫 How to reach me **tssp184@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/17rYQtx-ZceEUWLGFQ6EYine4U9MReGn2/view?usp=sharing](https://drive.google.com/file/d/17rYQtx-ZceEUWLGFQ6EYine4U9MReGn2/view?usp=sharing)
 
