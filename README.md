@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **tssp184@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/17rYQtx-ZceEUWLGFQ6EYine4U9MReGn2/view?usp=sharing](https://drive.google.com/file/d/17rYQtx-ZceEUWLGFQ6EYine4U9MReGn2/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1r5Rd2Z4hES66YsO6oU0kUJc_wQSk3UmG/view?usp=sharing]
 
 - ⚡ Fun fact **I enjoy immersing myself in the world of novels**
 
